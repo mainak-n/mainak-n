@@ -1,6 +1,6 @@
 # Mainak Nath
 
-**AI-Native Product Manager** 📍 Bengaluru, India | 📧 [dn.mainak@gmail.com](mailto:dn.mainak@gmail.com) | 📱 +91 8974730146 | 🔗 [linkedin.com/in/mainak-nath](https://linkedin.com/in/mainak-nath)
+**AI-Native Product Manager** 📍 Bengaluru, India | 📧 [dn.mainak@gmail.com](mailto:dn.mainak@gmail.com) | 📱 +91 89747301XX | 🔗 [linkedin.com/in/mainak-nath](https://linkedin.com/in/mainak-nath)
 
 ---
 
